@@ -1,1 +1,1 @@
-# isaacowusu-gads-2020-projects
+# IsaacOwusu GADS Project Submissions
